@@ -98,6 +98,14 @@ At around 1-2 months the common issues(hungry, wet or sleepy) weren't fixing our
 
 A nurse friend gave us a great [basic first aid kit](first-aid.md) designed for people without formal medical training.
 
+### Swing
+
+Get a good swing, nickname it “the neglect-o-matic”
+
+### [Baby Carrier](https://ergobaby.com/baby-carrier)
+
+Ergo baby carrier is the best wearable in existence, hands down. Infants in front, with insert to hold head up. 6months or so we switched to wearing on back. Need to do laundry but kid is grumpy? Wear them. They will chill, and you get your hands back. Huge win.
+
 ## Books
 
 ### Most baby books are terrible.
